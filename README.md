@@ -1,1 +1,1 @@
-This is a chess related game, with lots of inparation( idk)
+yeah no we not doing chess
